@@ -1,1 +1,0 @@
-birkiüç ses deneme  sssss asvkdjuaghbvfkhsgayd
